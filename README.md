@@ -9,3 +9,5 @@
 
 ## 主机商家篇
 [斯巴达 三网速度优美](https://bit.ly/3HwphuM)
+
+[Vultr 注册就送100刀 充值多少送多少（估计是）](https://www.vultr.com/?ref=9022237-8H)
